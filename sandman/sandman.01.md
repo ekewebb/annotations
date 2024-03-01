@@ -45,7 +45,7 @@ Another _possible_ Elvis Costello influence is the title to Sandman #1 - there I
 
   First known appearances of Ellie Marsten, Daniel Bustamonte, Stefan Wasserman, and Unity Kincaid. Unity will appear later, the rest appear only throughout this issue.
 
-  In one of McFarlane's comic Spawn's early stories, the main character is a certain Billy Kincaid, serial killer of little children. McFarlane himself wrote the Billy Kincaid story. Alan Moore wrote Spawn#8, which featured Kincaid's experiences in Hell. Neil Gaiman wrote Sandman#9 and the Angela Mini-series.
+  In one of McFarlane's comic Spawn's early stories, the main character is a certain Billy Kincaid, serial killer of little children. McFarlane himself wrote the Billy Kincaid story. Alan Moore wrote Spawn#8, which featured Kincaid's experiences in Hell. Neil Gaiman wrote Spawn#9 and the Angela Mini-series.
 
 ### Page 4
 
